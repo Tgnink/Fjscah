@@ -1,3 +1,2 @@
-- 👋 Hi, I’m @Fjscah
-- 
-my crappy graduate school life 
+- 👋 Hi, I’m @Tgnink
+- begin anew
